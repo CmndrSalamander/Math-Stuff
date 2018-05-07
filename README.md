@@ -1,2 +1,1 @@
-# Cool Math Things
-# Check Them Out
+# I Found These Files and Decided to Share Them With You
